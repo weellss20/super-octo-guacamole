@@ -1,1 +1,1 @@
-Szymon Sobczak 21505 C1
+Szymon 21505 C1
